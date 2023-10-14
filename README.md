@@ -1,18 +1,18 @@
 # Hashvalue
-# Name
+ Name
 Anand 🤠
 
-# What do I do?
+ What do I do?
 
 I am a Student , Learning shitthings and always looking for new challenges 🥷
 
-# Skills
+ Skills
 
 * Crypto enthusiast 
 * trader
 * I do shit posts
 
-# Contact Information
+ Contact Information
 
 * Email: voidinlove.mail@gmail.com
 * X :https://twitter.com/hashvalue
